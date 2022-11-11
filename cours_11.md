@@ -13,4 +13,5 @@ Je crois que pour la prochaine fois, je vais essayer d'avoir moins de temps mort
 
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi? 
-J'ai beaucoup aimé la présentation de 
+
+J'ai beaucoup aimé la présentation de Prethiah, car c'était très bien expliqué et on pouvait facilement reproduire ce qu'elle faisait en suivant ces consignes. J'ai aussi beaucoup aimé le contenu qu'elle présentait et celui-ci était facile à comprendre.Sa présentation était simple et complète. 
